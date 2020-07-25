@@ -46,9 +46,7 @@ Cet band 4 and BAND 6、Civil Service Examination、postgraduate entrance exams�
 
 20教育学https://pan.baidu.com/share/init?surl=6ab82HTGozIG1_mDl8x8ZQ  提取码 0259
 
-2021【西医综合+中医综合】专项
-
-西综 https://shimo.im/docs/YjkYqhP3GqK3dDTt
+2021【西医综合+中医综合】专
 
 中综链接: https://pan.baidu.com/s/1XYQdhDwj-UoC4Z7qb8ZkEA 提取码: usm
 2021【管理类联考】专项
